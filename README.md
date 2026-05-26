@@ -14,3 +14,5 @@ The aim is to understand how to request help from AI tools for tasks like writin
 
 
 Result: 
+[kingsoft document] pe6
+https://ap.wps.com/l/cbCaerguKrtmWAPY
